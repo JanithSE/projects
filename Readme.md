@@ -1,3 +1,3 @@
 #demo
-hello am janith chamitha am doing the this first gitsssssssssss ssssssssssssssssssssssssss
+hello am janith chamitha am doing the this first project
 am janith chamitha
